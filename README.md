@@ -2,7 +2,7 @@
 - 👀 I’m interested in the field of CyberSecurity and Hacking
 - 🌱 I’m currently learning basics of CyberSecurity and working as a CyberSecurity and Ethical Hacking Intern.
 - 💞️ I’m looking to collaborate on projects which will enhance my skills in the above mentioned field.
-- 📫 You can reach me on y.shubham132001@gmail.com
+- 📫 You can reach me on ssy132001@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am also a Defense Aspirant and I'm here to protect you from Cyber Threats.
 
